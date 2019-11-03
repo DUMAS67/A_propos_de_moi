@@ -1,1 +1,2 @@
 Thierry DUMAS
+Diginamic Montpellier
